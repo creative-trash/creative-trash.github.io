@@ -6,6 +6,6 @@ footer, .view{
 display:none;
 }
 
-.wrapper img:hover{
+.wrapper img:after{
   content: "<div class=\"logo\">THIS IS MY IMAGE</div>";
 }
