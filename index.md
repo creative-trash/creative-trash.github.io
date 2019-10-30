@@ -73,21 +73,21 @@ As Shuixian Gong Market is the food market with the longest history of 300+ year
 
 ![](files/pack.png)
 
-We picked Fukurou, the first package-free store in the southern part of Taiwan, as the destination of our second visit. 
+Fukurou is said to be the first package-free store in Tainan. We wanted to investigate the feasibility of adopting a zero waste lifestyle here, and also the limitations of running a package-free business. 
  
 
 ![](files/8.jpg)
 
-We expect to investigate the feasibility of adopting a zero waste lifestyle in Tainan, and also the limitations of running a package-free business here.
+We talked to the shopkeeper, Lin Pei-chun when we tried to make a purchase in store. She introduced us the grains she sells as well as how her brother and her run the business.
 
 
 ![](files/9.jpg)
 
-
-Shopkeeper's name: Lin Pei-jun
-
-Besides, we find the location of Fukurou interesting, as it is hidden in a quiet district that seemed to attract less customers according to the map. Thus, we will also spend some time observing the neighbourhood.
+We spent some time observing the neighbourhood. We found the location of Fukurou interesting, as it is hidden in a quiet district that seemed to attract less customers. Lin said they chose this location in order to only attract customers with the habit of intentionally bringing their own containers to shop, instead of those who only come to site-see or take photos.
 
 ![](files/10.jpg)
 
+# What's next?
 
+The two visits brought us new points of view and inspired us a lot. We are now forming a bigger picture of the plastic and packaging waste issue, including how habits of the locals create the waste and how some of them are trying to resolve it.
+And among all these, we are more concerned about the use of plastic and one-use containers. We are considering to work on a plan that rents eco-friendly cups across Tainan.
