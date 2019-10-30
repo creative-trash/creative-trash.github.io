@@ -91,3 +91,6 @@ We spent some time observing the neighbourhood. We found the location of Fukurou
 
 The two visits brought us new points of view and inspired us a lot. We are now forming a bigger picture of the plastic and packaging waste issue, including how habits of the locals create the waste and how some of them are trying to resolve it.
 And among all these, we are more concerned about the use of plastic and one-use containers. We are considering to work on a plan that rents eco-friendly cups across Tainan.
+
+
+Logo credits: https://www.viewfinder.com.tw/
