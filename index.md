@@ -55,6 +55,8 @@ In our first visit, we observed how plastic and packaging waste is made in one o
 
 Plastic and packaging waste is expectedly serious in the restaurants and stores in Shuixian Gong Market. Plastic cups and paper boxes are provided to the customers, even when they are dining in. For takeaways, plastic bags are also provided to separate each kind of food.
 
+![](files/11.jpg)
+
 ![](files/2.jpg)
 
 
@@ -86,6 +88,6 @@ Shopkeeper's name: Lin Pei-jun
 
 Besides, we find the location of Fukurou interesting, as it is hidden in a quiet district that seemed to attract less customers according to the map. Thus, we will also spend some time observing the neighbourhood.
 
-
+![](files/10.jpg)
 
 
