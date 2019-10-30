@@ -71,12 +71,12 @@ As Shuixian Gong Market is the food market with the longest history of 300+ year
 
 ![](files/pack.png)
 
-
+We picked Fukurou, the first package-free store in the southern part of Taiwan, as the destination of our second visit. 
  
 
 ![](files/8.jpg)
 
-
+We expect to investigate the feasibility of adopting a zero waste lifestyle in Tainan, and also the limitations of running a package-free business here.
 
 
 ![](files/9.jpg)
@@ -84,6 +84,7 @@ As Shuixian Gong Market is the food market with the longest history of 300+ year
 
 Shopkeeper's name: Lin Pei-jun
 
+Besides, we find the location of Fukurou interesting, as it is hidden in a quiet district that seemed to attract less customers according to the map. Thus, we will also spend some time observing the neighbourhood.
 
 
 
