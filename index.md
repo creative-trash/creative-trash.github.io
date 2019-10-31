@@ -94,4 +94,7 @@ Besides, We spent some time observing the neighbourhood. We found the location o
 The two visits brought us new points of view and inspired us a lot. We are now forming a bigger picture of the plastic packaging waste issue, including how habits of the locals create the waste and how some of them are trying to resolve it.
 As the existence of morning and night markets is one of the characteristics of Taiwan, which at the same time created the most plastic packaging waste, we are considering to focus more on morning and night markets in the future.
 
+
+
+
 Logo credits: https://www.viewfinder.com.tw/
