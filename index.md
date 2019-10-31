@@ -50,6 +50,10 @@ In our first visit, we observed how plastic and packaging waste is made in one o
 
 ![](files/first.png)
 
+![](files/street.png)
+
+
+
 Plastic and packaging waste is expectedly serious in the restaurants and stores in Shuixian Gong Market. Plastic cups and paper boxes are provided to the customers, even when they are dining in. For takeaways, plastic bags are also provided to separate each kind of food.
 
 ![](files/2.jpg)
@@ -65,6 +69,9 @@ As Shuixian Gong Market is the food market with the longest history of 300+ year
 
 
 # Second Visit: Fukurou
+
+![](files/shop.png)
+
 
 ![](files/pack.png)
 
