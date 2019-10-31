@@ -80,7 +80,7 @@ The problem of plastic packaging waste is expectedly serious in stores of Shuixi
 
 # Second Visit: Fukurou
 
-![](files/shop.png)
+![](files/shop.jpg)
 
 
 ![](files/pack.png)
