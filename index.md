@@ -6,7 +6,7 @@ Moreover, Tainan streets are clean in general. We usually see no litter despite 
 
 ![](files/4.png)
 
-'Just because you can't see something doesn't mean it isn't there' - the plastic packaging waste was not disposed on the street but it does not mean there is no waste created. Indeed, this is a serious problem that people in Tainan encounter every day. We, Group B, therefore decided to work on this topic.
+'Just because you can't see something doesn't mean it isn't there' - the plastic packaging waste was not disposed on the street but it does not mean there is no waste created. Indeed, this is a serious problem that people in Tainan encounter every day. We therefore decided to work on this topic.
 
 ![](files/3.png)
 
