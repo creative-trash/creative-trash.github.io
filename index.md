@@ -62,6 +62,8 @@ Plastic and packaging waste is expectedly serious in the restaurants and stores 
 As Shuixian Gong Market is the food market with the longest history of 300+ years in Tainan, some people already hinted us that mostly elderlies go there to shop. We then took the chance to explore local problems there and talk to the elder locals. We tried to investigate the core issues of all kinds of trash creation at the raw food, cooked food and groceries stores.
 
 ![](files/street.png)
+Photo credits: https://blog.tedxtainan.org/2015/09/27/tainan-12/
+
 
 The problem of plastic packaging waste is expectedly serious in stores of Shuixian Gong Market. Plastic cups and paper boxes are provided to the customers, even when they are simply dining in. Numerous plastic bags are also provided to separate each kind of takeaway food.
 
