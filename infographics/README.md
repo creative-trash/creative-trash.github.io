@@ -1,0 +1,1 @@
+![](../files/infographics.png)
